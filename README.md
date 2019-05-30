@@ -1,2 +1,0 @@
-# Oteropsss
-informatica
